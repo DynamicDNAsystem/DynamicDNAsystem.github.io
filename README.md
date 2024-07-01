@@ -28,11 +28,11 @@ I will decribe who we are here
 
 ## Our Core
 
-BlackTax Agency is the underground vehicle for aligning the people in our mentality of self-reliant mutual aid
+**BlackTax Agency** is the underground vehicle for aligning the people in our mentality of self-reliant mutual aid
 
-Dynamic Divine Network Association (D-DNA) brings all the scattered networks and efforts together to increase the effectiveness of each and the impact on the community
+**Dynamic Divine Network Association (D-DNA)** brings all the scattered networks and efforts together to increase the effectiveness of each and the impact on the community
 
-Horizon Rising is a community & personal development organization built to bring people out of poverty in a radical way.
+**Horizon Rising** is a community & personal development organization built to bring people out of poverty in a radical way.
 Horizon Rising is a community navigator and acts as a liaison between people in need and the resources that will meet those needs, in a cohesive, organized way that makes it easy for the needy to find and access what they need and grow beyond current circumstances. The organization teaches the man to fish, and how to learn more survival skills.
 
 All to provide services, products, & luxuries to ourselves even when we have no money!
